@@ -12,4 +12,5 @@ You can click the Preview link to take a look at your changes.
 
 i´m not a hacker or other i´m here to start in computing ont he web 
 i am french 
-je suis gentil de debute dans l´informatique je suis francais ducoup bientot jaurait une chaine youtube et insta po7r me suivre ✨⭐️
+je suis gentil de debute dans l´informatique je suis francais ducoup bientot jaurait une chaine youtube et insta pou
+r me suivre ✨⭐️
